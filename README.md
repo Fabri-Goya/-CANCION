@@ -32,3 +32,4 @@ Pero ha pasado el tiempo y yo también cambié
 Si no supiste amar
 Ahora te puedes marcha
 Ahora te puedes marchar
+ah ti 1000 años despues 
